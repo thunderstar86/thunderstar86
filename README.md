@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @thunderstar86
+- 👋 Hi, I’m ABalaji
 - 👀 I’m interested in music, reading, video editing, art, and art.
 - 🌱 I’m currently learning java.
 - 💞️ I’m looking to collaborate on stuff with my class
